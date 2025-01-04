@@ -1,1 +1,2 @@
 # PRINCIPLE_OF_MARKETING
+Semester Project on TRUCK SURF HOTEL
